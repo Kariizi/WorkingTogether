@@ -1,2 +1,2 @@
 # WorkingTogether
-Created by Athul
+Created by Ting Ting and Athul
